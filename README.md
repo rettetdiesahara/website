@@ -7,3 +7,6 @@ Der Wind verbreitet den Sand der Sahara auf der ganzen Welt, weshalb nicht mehr 
 
 ### Lösung
 Helfe mit, indem du den Sand aufsammelst und ihn in die Sahara zurückschickst!
+
+### Wie entsteht der Saharastaub?
+Die Sahara bläst jährlich 500 Millionen Tonnen Staub bis zu 5 Kilometer hoch in die Atmosphäre. Ist der Wind stark genug, so treibt er wie momentan den Staub nach Europa! Für die Sahara selbst bleibt bei diesem immensen Verlust aber nicht mehr genug Sand über. Hier braucht sie EURE HILFE!
